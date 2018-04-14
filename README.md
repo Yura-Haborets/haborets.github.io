@@ -1,1 +1,0 @@
-# yuriy-haborets.github.io
